@@ -1,4 +1,2 @@
 # totinh
-https://demngayyeu.github.io/totinh
-<br>
-tỏ tình auto đổ
+https://J-JRT.github.io/totinh
